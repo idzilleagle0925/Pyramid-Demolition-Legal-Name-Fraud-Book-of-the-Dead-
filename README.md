@@ -1,0 +1,2 @@
+# Pyramid-Demolition-Legal-Name-Fraud-Book-of-the-Dead-
+Windows Executable Download the latest .exe from the Releases page and double-click. No Python or Pygame installation required. This game is created in the spirit of the Legal Name Fraud message. Destroy the pyramids. Babylon Is Fallen. Judge Bows.  Read the BCCRSS → https://legalnamefraud.carrd.co  Created by the Legal Name Fraud Truth Channel
